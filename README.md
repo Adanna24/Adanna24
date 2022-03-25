@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Ozioko Blessing Adanna
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning front end development
-- 📫 How to reach me or chat me up on whatsapp on 07063797156.
+- 📫 call or chat me up on whatsapp on 07063797156.
